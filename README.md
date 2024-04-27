@@ -1,0 +1,1 @@
+# praprava_na_proverku
